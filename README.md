@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MoeNasseff
+- 👀 I’m interested in Freelancing Ecommeerce or Building new Software
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate on Intresting Projects
+- 📫 How to reach me www.MoeNasseff.com
